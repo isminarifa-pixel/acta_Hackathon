@@ -32,7 +32,7 @@ To preserve the **love, laughter, wisdom, and precious memories** of our grandpa
 ---
 
 ## 🎥 **60-Second Demo Video**
-👉 [Watch on YouTube or Loom](PASTE_YOUR_VIDEO_LINK_HERE)
+👉 [Watch on YouTube or Loom]https://youtube.com/shorts/r5poWNKpfGY
 
 ---
 
