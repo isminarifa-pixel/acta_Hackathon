@@ -27,7 +27,7 @@ To preserve the **love, laughter, wisdom, and precious memories** of our grandpa
 ---
 
 ## 🚀 **Live Demo**
-👉 [View Figma Prototype](PASTE_YOUR_FIGMA_LINK_HERE)
+👉 [View Figma Prototype]https://emboss-sorbet-77530450.figma.site/
 
 ---
 
